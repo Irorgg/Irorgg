@@ -18,3 +18,4 @@
 ## E-mail de contato
 - gobiragrigor@gmail.com
 
+![snake gif](https://github.com/Irorgg/Irorgg/blob/output/github-contribution-grid-snake.svg)
