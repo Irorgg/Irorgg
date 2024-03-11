@@ -1,4 +1,4 @@
-### E aí, me chamo Grigor Gobira! ✌️😎
+### E aí, meu nome é Grigor! ✌️😎
 
 
 
